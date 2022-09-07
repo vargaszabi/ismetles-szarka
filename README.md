@@ -1,4 +1,4 @@
-# [Név]
+# [Varga Szabolcs]
 
 
 ## Hogyan kezdj neki?
